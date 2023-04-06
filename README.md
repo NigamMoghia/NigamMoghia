@@ -1,5 +1,20 @@
 # 💫 About Me:
-We are passionate, we believe in making genuine commitments and honest delivery of work
+★ We are passionate, we believe in making genuine commitments and honest delivery of work. ★ 
+
+🏆 Our developers are certified in cloud service and maintenance programs and are experts in developing and integrating efficient responsive APIs.🏆
+
+👉 The S-Matrix Advantage
+🎯Suite CRM: We have a group of more than 50 expert SuiteCRM Engineers who have broad experience in carrying out SuiteCRM arrangements across the globe. 
+
+🎯UI/UX: We have expert UI designers with extensive knowledge of Mobile UI/UX designs of user experiences for hand-held devices.
+
+🎯Mobile App Development: We have developers’ expertise in building mobile apps for Android, IOS Android + IOS devices across many industries such as retail, telecommunications, and e-commerce to insurance, healthcare, supply chain management, and government organizations
+
+🎯 Web Development: Our professional web development team offers you reliable solutions which cautiously designed and planned with stringent quality standards.
+
+🎯Custom development – We can help revamp your already built-in software program to function well with the forthcoming needs of your business in this dynamic environment.
+
+Thank you for having a look at our profile. Looking forward to your Invite - 📨 👍
 
 
 ## 🌐 Socials:
